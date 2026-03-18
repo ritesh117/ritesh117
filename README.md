@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning
+"With GREAT Development Skills comes GREAT RESPONSIBILITES!!!"
 
 
 ## 🌐 Socials:
